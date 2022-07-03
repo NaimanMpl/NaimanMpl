@@ -1,4 +1,4 @@
-# Hi there, I'm Naïman 👋 
+# Hi there, I'm Naïman a Web Developer 👋 
 
 ## I'm a Student !
 
